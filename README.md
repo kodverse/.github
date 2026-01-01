@@ -167,9 +167,9 @@ We specialize in but are not limited to:
 
 ## 📞 Contact & Support
 
-**Project Inquiries:** [your-email@kodverse.com]  
-**Support:** [support@kodverse.com]  
-**Website:** [www.kodverse.com]
+**Project Inquiries:** [prasiddhak77@gmail.com]  
+**Support:** [prasiddhak77@gmail.com]  
+**Website:** [working.....]
 
 ## 📄 License & Legal
 
